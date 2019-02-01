@@ -2,10 +2,9 @@
 
 Maca La Molina là sản phẩm chiết xuất từ sâm Maca có nguồn gốc từ thiên nhiên giúp tăng cường khả năng sinh lý, [điều trị yếu sinh lý](https://shopsungsuong.info/thuoc-dieu-tri-yeu-sinh-ly-maca-la-molina.html), liệt dương, gia tăng chất lượng và số lượng tinh trùng, chống xuất tinh sớm giải quyết tình trạng các quý ông chưa đi tới chợ mà hết tiền, ngoài ra Maca La Molina còn giúp tăng cường khả năng sinh sản ở phụ nữ nhờ chứ Arginin – loại amino acid làm tăng khả năng sinh sản
 
-<img src="https://shopsungsuong.info/wp-content/uploads/2019/02/lamolina.jpg">
+## MUA SẢN PHẨM: [https://shopsungsuong.info/thuoc-dieu-tri-yeu-sinh-ly-maca-la-molina.html](https://shopsungsuong.info/thuoc-dieu-tri-yeu-sinh-ly-maca-la-molina.html)**
 
-### Maca La Molina
-**Mua sản phẩm: [https://shopsungsuong.info/thuoc-dieu-tri-yeu-sinh-ly-maca-la-molina.html](https://shopsungsuong.info/thuoc-dieu-tri-yeu-sinh-ly-maca-la-molina.html)**
+<img src="https://shopsungsuong.info/wp-content/uploads/2019/02/lamolina.jpg">
 
 Yếu sinh lý là một vấn đề “nhức nhối” trong phòng ngủ của mỗi ngôi nhà nhưng mọi người lại thường lảng tránh bàn luận hoặc là không tham gia vào câu chuyện đó nữa. Chứng bệnh này tưởng chừng như chỉ xảy ra với nam giới nhưng thực tế là yếu sinh lý ở nữ giới chiếm 43% cao hơn đến 12% so với nam giới.
 
