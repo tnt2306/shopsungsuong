@@ -6,7 +6,7 @@ Big Penis là một sản phẩm tự nhiên không có bất kỳ một chất 
 
 <img src="https://shopsungsuong.info/wp-content/uploads/2019/02/big-penis-timeline.jpg">
 
-** Giới thiệu thuốc cương dương BIG PENIS**
+**Giới thiệu thuốc cương dương BIG PENIS**
 
 – Big Penis 6800mg cực mạnh (cao cấp từ USA)
 
@@ -54,6 +54,6 @@ Big Penis là một sản phẩm tự nhiên không có bất kỳ một chất 
 
 <img src="https://shopsungsuong.info/wp-content/uploads/2019/02/big-penis-2.jpg">
 
-Công thức đặc biệt của thuốc Big Penis có thể làm tăng lưu thông máu và sản xuất ra một loai hooc môn tự nhiên để nở rộng dương vật.Khi dương vật cương cứng, nhiều máu hơn sẽ được đỗ vào các khoang mô của dương vật làm cho các khoang mô của dương vật mở rộng tự nhiên.Điều này, không chỉ mang lại sự cương cứng lâu hơn và đầy đủ hơn mà còn bồi bổ chức năng của thận thêm khỏe hơn, điều đó làm cho bạn có thể quan hệ nhiều hơn bình thường và không hề mệt mỏi.
+Công thức đặc biệt của thuốc [Big Penis](https://shopsungsuong.info/tag/big-penis) có thể làm tăng lưu thông máu và sản xuất ra một loai hooc môn tự nhiên để nở rộng dương vật.Khi dương vật cương cứng, nhiều máu hơn sẽ được đỗ vào các khoang mô của dương vật làm cho các khoang mô của dương vật mở rộng tự nhiên.Điều này, không chỉ mang lại sự cương cứng lâu hơn và đầy đủ hơn mà còn bồi bổ chức năng của thận thêm khỏe hơn, điều đó làm cho bạn có thể quan hệ nhiều hơn bình thường và không hề mệt mỏi.
 
 
