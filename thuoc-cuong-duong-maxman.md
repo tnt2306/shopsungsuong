@@ -28,7 +28,7 @@ Thuốc giúp cường dương Maxman là thực phẩm chức năng giúp hỗ 
 
 – Người mới sử dụng lần đầu uống 1/2 viên trước khi quan hệ 30 – 60 phút, nếu không đạt khoái cảm khi quan hệ thì lần sau uống 1 viên
 
-Thuốc cường dương thảo dược [Maxman](https://shopsungsuong.info/thuoc-cuong-duong-maxman.html) hoàn toàn không có tác dụng phụ khi sử dụng, bảo quản nơi khô mát, tránh ánh nắng mặt trời, để xa tầm tay trẻ em.
+Thuốc cường dương thảo dược [Maxman](https://shopsungsuong.info/tag/maxman) hoàn toàn không có tác dụng phụ khi sử dụng, bảo quản nơi khô mát, tránh ánh nắng mặt trời, để xa tầm tay trẻ em.
 
 
 
