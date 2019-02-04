@@ -1,5 +1,5 @@
 # Shop Sung Sướng
-Thực phẩm chức năng điều trị yếu sinh lý, chống xuất tinh sớm, tăng cường cương dương, thuốc chống xuất tinh sớm kéo dài thời gian quan hệ tình dục.
+Thực phẩm chức năng điều trị yếu sinh lý, [chống xuất tinh sớm](https://shopsungsuong.info/), tăng cường cương dương, thuốc chống xuất tinh sớm kéo dài thời gian quan hệ tình dục.
 
 **CÁC THỰC PHẨM CHỨC NĂNG HỖ TRỢ**
 
